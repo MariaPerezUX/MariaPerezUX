@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MariaPerezUX
+- 👀 I’m interested in User Experience, technology and innovation
+- 🌱 I’m currently learning User experience
+- 💞️ I’m looking to collaborate on a innovative company
+- 📫 How to reach me maria.perez28@unmsm.edu.pe
